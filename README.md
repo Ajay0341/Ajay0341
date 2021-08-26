@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ajay0341
+- 👀 I’m interested in ethical hacking and programming 
+- 🌱 I’m currently learning python, java, MS office,CNC programming
+- 💞️ I’m looking to collaborate on different projects
+- 📫 How to reach me majay04062001@gmail.com
+- Become a best techie
